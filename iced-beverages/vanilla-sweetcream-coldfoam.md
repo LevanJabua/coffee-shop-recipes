@@ -8,7 +8,7 @@
 - 1/4 cup of 2% milk
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
-- Ice
+- Ice x2
 
 ## How to Make Vanilla Sweet Cream Cold Foam
 
